@@ -12,6 +12,8 @@ Our current members are:
 - Jamie (20760)
 - Veer (16379)
 - Julian (10355)
+- Mason (16379)
+- Aarsh (12869)
 
 We compete in CAD challenges during the offseason. Here are some of our victories:
 

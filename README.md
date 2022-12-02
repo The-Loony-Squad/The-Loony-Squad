@@ -22,6 +22,7 @@ We compete in CAD challenges during the offseason. Here are some of our victorie
 - 2022 VCC 3rd Place
 
 Contact us on the FTC discord! https://discord.gg/first-tech-challenge
+
 Follow us on Twitter and Instagram for new projects: 
 https://twitter.com/the_loony_squad
 https://www.instagram.com/the_loony_squad/
